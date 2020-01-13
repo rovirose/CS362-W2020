@@ -1,2 +1,0 @@
-#Emmanuel Rovirosa, rovirose
-
